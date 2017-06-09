@@ -1,0 +1,1 @@
+# Manchu-Chinese-Dictionary_Query-Tool
